@@ -7,3 +7,5 @@ Md Rakin Ashraf Khan - 30172267
 Arpita Chowdhury - 30190820
 Kumkum Akter - 30174030
 Raisa Mehjabin Azni - 30199075
+
+Arpita is practicing..
