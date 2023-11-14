@@ -8,6 +8,12 @@ Arpita Chowdhury - 30190820
 Kumkum Akter - 30174030
 Raisa Mehjabin Azni - 30199075
 
+
+git rakin
+
 Arpita is practicing..
 
-Raisa is single forever... :(
+Jui is trying best...
+
+Today is Monday..
+Today is MMonday..
